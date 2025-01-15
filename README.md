@@ -1,4 +1,4 @@
-<img width="605" alt="Zrzut ekranu 2025-01-15 162948" src="https://github.com/user-attachments/assets/87be769c-db87-4b62-aacd-c945d1e0914a" />
+<img width="966" alt="ss-2025-ss" src="https://github.com/user-attachments/assets/4373fcb4-19c4-4485-8407-9eec5d94a78d" />
 
 ## Hello_[redacted]
 
