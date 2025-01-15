@@ -1,3 +1,3 @@
-## Hyello, Curious Soul 
+## Hello_[redacted]
 
-Stay a while and look at my old projects~👻
+Stay_a_while_and_explore_my_old_projects_if_you'd_like
